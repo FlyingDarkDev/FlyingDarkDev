@@ -15,9 +15,9 @@
 
 - ⚡ Fun fact **I am very funny**
   
--  Lord Krishna - **[://lordkrishna.netlify.app/](https://lordkrishna.netlify.app/) **
+-  Lord Krishna - **[https://lordkrishna.netlify.app/](https://lordkrishna.netlify.app/) **
 
--  Ananta sanatanam- **[ttps://anantasanatanam.netlify.app/](https://anantasanatanam.netlify.app/) **
+-  Ananta sanatanam- **[https://anantasanatanam.netlify.app/](https://anantasanatanam.netlify.app/) **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
