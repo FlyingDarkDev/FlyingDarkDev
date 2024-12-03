@@ -14,6 +14,10 @@
 - 📫 How to reach me **yaduvanshiigaurav086@gmail.com**
 
 - ⚡ Fun fact **I am very funny**
+  
+-  Lord Krishna - **[://lordkrishna.netlify.app/](https://lordkrishna.netlify.app/) **
+
+-  Ananta sanatanam- **[ttps://anantasanatanam.netlify.app/](https://anantasanatanam.netlify.app/) **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
